@@ -2,7 +2,8 @@
 
 Comunidades Virtuales
 
+por el Grupo 410
 
-Definición:
+![](IMG_7950.JPG)
 
 
